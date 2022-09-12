@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/bird2008](https://github.com/bird2008)
 
-- 📫 How to reach me  **mailto:birdobird.business@gmail.com**
+- 📫 How to reach me ** mailto:birdobird.business@gmail.com**
 
 - ⚡ Fun fact **I like ketchup, but I don’t like tomatoes:)**
 
