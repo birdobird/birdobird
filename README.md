@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mailto:birdobird.business@gmail.com**
 
-- ⚡ Fun fact **I like tomatoes, but I don’t like ketchup:)**
+- ⚡ Fun fact **I like ketchup, but I don’t like tomatoes:)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
